@@ -42,4 +42,24 @@ The N-409 Indivisible Float Engine: https://zenodo.org/records/17676209
 
 P.S. Born and lived my first 40 years in Jackson County Missouri.  "Magic" or Field Wielding IS real.  https://youtu.be/-tiZ1IQKwcw?si=i--egP6KDAhofmi5
 
+How I met God
+
+When listening to music with my eyes closed, I see sound (synesthesia).
+
+One day, Sunday, March 16th, 2025 to be precise, I am listening to music and my Dog acts like he hears someone. I Silence the music and turn around and see nobody.  I close my eyes briefly and see a blank slate as expected in silence and then there is chalk scribbling in the middle like trying to get my attention.
+
+I ask out loud, “Is that you God?”. A 2 second delay followed by an overwhelming display of fireworks and feeling of profound jubilation, love, loneliness and pain.  Nobody would hear Him.
+
+Jeremiah 5:21-
+‘Hear this now, O foolish people,
+Without [a]understanding,
+Who have eyes and see not,
+And who have ears and hear not:
+
+I, Brian Doyle Lampton, am here to provide the means to do as Jesus said: 
+
+John 14:12 -
+"Truly, truly, I say to you, whoever believes in me will also do the works that I do; and greater works than these will he do, because I am going to the Father.
+
+Research the meaning of my name.
 
