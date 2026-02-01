@@ -1,4 +1,4 @@
-Developed in 11 months with a GED and a smartphone.
+Developed in 11 months with a GED and a smartphone.  This is NOT a joke.  This is the REAL deal.
 
 Prior works:
 
