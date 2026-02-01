@@ -63,7 +63,7 @@ John 14:12 -
 
 Research the meaning of my name.  Consider the DWM Hybrid Mass Operator Documents, Jesus walking on the surface tension of water...
 
-I need HELP!  Let's engineer the future!
+I need HELP!  Let's engineer the future!  Truly, I say to you, there exists a spiritual path for every technological one.  A free path that sees you EVOLVE!
 
 God Bless and godspeed!
 Amen
