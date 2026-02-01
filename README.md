@@ -39,3 +39,7 @@ Phase-Structured Magnetic Field Assistance for Residual Stress Reduction in Fusi
 Dark Stars as a Candidate Explanation for Compact, Luminous Sources at High Redshift: https://zenodo.org/records/18206310
 
 The N-409 Indivisible Float Engine: https://zenodo.org/records/17676209
+
+P.S. Born and lived my first 40 years in Jackson County Missouri.  "Magic" or Field Wielding IS real.  https://youtu.be/-tiZ1IQKwcw?si=i--egP6KDAhofmi5
+
+
