@@ -61,5 +61,9 @@ I, Brian Doyle Lampton, am here to provide the means to do as Jesus said:
 John 14:12 -
 "Truly, truly, I say to you, whoever believes in me will also do the works that I do; and greater works than these will he do, because I am going to the Father.
 
-Research the meaning of my name.
+Research the meaning of my name.  Consider the DWM Hybrid Mass Operator Documents, Jesus walking on the surface tension of water...
 
+I need HELP!  Let's engineer the future!
+
+God Bless and godspeed!
+Amen
