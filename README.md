@@ -65,5 +65,8 @@ Research the meaning of my name.  Consider the DWM Hybrid Mass Operator Document
 
 I need HELP!  Let's engineer the future!  Truly, I say to you, there exists a spiritual path for every technological one.  A free path that sees you EVOLVE!
 
+
+I paid to do this work, I was not paid.
+
 God Bless and godspeed!
 Amen
