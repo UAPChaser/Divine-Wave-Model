@@ -70,3 +70,5 @@ I paid to do this work, I was not paid.
 
 God Bless and godspeed!
 Amen
+
+P.S.  Born and first 40 years in Jackson County Missouri (misery).  OK...  Research the meaning of my names.  Brian, Noble or High? and I am ALWAYS HIGH af lol. Lampton yeah I'll let you all do that one.
